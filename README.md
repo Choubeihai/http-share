@@ -17,7 +17,7 @@
 
 知乎账户：https://www.zhihu.com/people/choubeihai
 
-公众号：周北海
+公众号账户：周北海
 
 
 
